@@ -10,4 +10,4 @@ Hi, I am Yuvaraj Kesavan and engineering leader with a passion for software tech
 
 As we bid farewell to the old and welcome the new, may your heart be filled with gratitude and your path illuminated with success. Cheers to a fantastic 365 days head.
 
-# Happy New Year 2024!!!
+# Happy New Year 2024!!! 😃🥳😍
